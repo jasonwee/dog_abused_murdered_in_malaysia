@@ -1,4 +1,4 @@
-# dog_abused_murdered_in_malaysia
+# Dog abused Murdered In Malaysia
 
 ## Why is this setup?
 Over time, there are many cases reported and the frequency during march 2019 is just unbearable. Take a look at these  the following pictures.
